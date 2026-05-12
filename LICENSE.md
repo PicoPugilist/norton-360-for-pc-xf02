@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://PicoPugilist.github.io/norton-360-for-pc-xf02/ ) |
  |---------------------|----------------------:|
 
 
